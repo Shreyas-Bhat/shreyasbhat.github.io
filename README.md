@@ -1,2 +1,0 @@
-# shreyasbhat.github.io
-homepage
